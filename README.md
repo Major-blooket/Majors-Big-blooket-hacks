@@ -1,1 +1,1 @@
-# Majors-Big-blooket-hacks
+# Majors-blooket-hacks
